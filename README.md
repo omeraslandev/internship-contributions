@@ -1,1 +1,1 @@
-## My Salcomp Projects! 🚀
+## My Internship Projects! 🚀
